@@ -1,4 +1,4 @@
-# 
+# VIP DaVinci Resolve pour PC extensions est le meilleur DaVinci Resolve pour PC extensions avec rouleau de piano et fondu entrée/sortie. Sécurisé, fiable et optimisé pour des
 
 
 
